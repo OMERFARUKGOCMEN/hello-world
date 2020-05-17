@@ -1,4 +1,4 @@
 # hello-world
 öğrenme amaçlı
-yazdım
-t
+BU YE ME K YE ME K İÇİNNNNNN
+BU YOK OLMAK İÇİ N
